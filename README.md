@@ -59,6 +59,7 @@ Reasoning : Dumbass Pedophile
          Address : 453 N Emperor Ave Fresno, CA
          Name : Guadalupe R Ramirez
          Phone Number : (559) 456-4263, (559) 455-9252
+         IP Address : 66.85.178.74
          Family : Guadalupe R Ramirez, Gabriel M Rubio, Alvaro Ramirez, Angela G Ramirez, Eloisa L Deramirez, Elvira R Rubio, Janet Ortega, Delfina Ramirez, Alejandro Ramirez, Maria D Ramirez, Benjamin R Arevalo, Guadalupe Maria Ramirez, Margarita Rubio, Nicandro Rubio, Bertha Rubio, Estella Rubio, Israel A Rubio, Natalia Rubio, Alejandro G Ramirez, Alex Ramirez JR, Angelica T Ramirez, Antonio Covarrubias Ramirez SR, Dario Valle Ramirez, Emma Isela Preciado, Gildardo G Ramirez, Joaquin Ramirez, Julio J Ramirez, Maria C Ramirez, Baria F Ramirez, Oscar Raul Ramirez, Socorro Ramirez, Sonia G Ramirez, Sonia Chapa Ramirez, Jorge Olivares, Martha Ramirez
 
 
